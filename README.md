@@ -1,1 +1,1 @@
-# plants
+Matricaria chamomilla (synonym: Matricaria recutita), commonly known as chamomile (also spelled camomile), Italian camomilla, German chamomile, Hungarian chamomile (kamilla), wild chamomile or scented mayweed, is an annual plant of the composite family Asteraceae. M. chamomilla is the most popular source of the herbal product chamomile, although other species are also used as chamomile.
